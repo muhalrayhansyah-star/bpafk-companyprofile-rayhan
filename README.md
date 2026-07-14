@@ -1,0 +1,2 @@
+# bpafk-companyprofile-rayhan
+BELAJAR
